@@ -4,6 +4,6 @@
   t ♡ al ♡ yumiko<br/>
   ↳ ask to be added !
   
-  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flan-doll)
+  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flan-doll&label=sillies&color=b06d78)
 </p>
 <br clear="left">
