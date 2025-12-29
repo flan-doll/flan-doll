@@ -2,6 +2,7 @@
 <p>
   ︶︶ my beloveds <i><b>!!</b></i><br/>
   t ♡ al ♡ yumiko<br/>
+  zag ♡ luna ♡ phos ♡ luffy<br/>
   ↳ ask to be added !
   
   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flan-doll&label=sillies&color=b06d78)
